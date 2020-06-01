@@ -1,1 +1,0 @@
-# HnGi-internship-task-1
